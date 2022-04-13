@@ -1,2 +1,2 @@
-# skols
-skol
+# žabi
+1ducha stranka
