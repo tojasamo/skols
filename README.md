@@ -3,4 +3,8 @@
 
 
 dnes je streda
-jj
+jj 
+
+
+včera som jedol jedlo konečne 
+
